@@ -1,1 +1,1 @@
-<img src="https://github.com/BigDanyBoy/BigDanyBoy/assets/142296670/42efb888-f056-449c-a1ca-4caa1415518b" alt="guy.smeshes.then.smeshes.again.and.again..." width="450"/>
+<img src="https://github.com/user-attachments/assets/2800bff4-8ece-414f-b509-bc67605e8559" alt="![piezoelectricity](" width="450"/>
